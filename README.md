@@ -1,1 +1,0 @@
-# rishikeshupadhyay.github.io
